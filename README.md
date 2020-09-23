@@ -5,4 +5,4 @@ Cup Noodles
 4.Your noodles are ready to be eaten
 
 
-I know its way to simple but thats the only thing I know how to cook
+I know its way too simple but thats the only thing I know how to cook
